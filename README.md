@@ -38,5 +38,5 @@ CISA-certified professionals are in high demand for their ability to ensure IT s
 
 🌐 www.sterlingnext.com
 
-👉 Learn more: https://www.sterlingnext.com/course/lean-six-sigma-green-belt-certification-training
+👉 Learn more: https://www.sterlingnext.com/course/cisa-certification-training
 
